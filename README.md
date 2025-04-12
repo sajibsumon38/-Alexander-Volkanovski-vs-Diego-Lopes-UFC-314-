@@ -4,6 +4,15 @@ April 12, 202‘5, Kaseya Center, Miami It will be contested for the vacant UF
 Alexander Volkanovski's
 Record: Volkanovski (26-4) is a former UFC featherweight titleholder who reigned over the weight class for more than four years and defended his belt five times. But he is coming off two consecutive knockout defeats — first to Islam Makhachev in October 2024 at lightweight, then to Ilia Topuria in February 2024 at featherweight. Following a 14-month layoff, this will be his first fight in more than a year.
 Motivation: Volkanovski is 36 years old and he understands that this may be his last opportunity to win the title back. He adopted an “Old Man Volk” persona, wanting to show he could still hang at the highest level. Though younger opponents have come after his place, he feels he is experienced and tactical enough to outlast them.
+
+
+💻Best Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+
 Diego Lopes' Rise
 Record and Momentum: Lopes (26-6) is on a five-fight winning streak, having beaten Dan Ige and Brian Ortega, among others. With an aggressive style and knockout power, Lopes is quickly rising in the featherweight division after debuting in the UFC just under two years ago.
 Fighting Style: Lopes is a brutal striker in combination with elite jiu-jitsu so expect Lopes to be a threat on the feet and on the ground. However, questions about his cardio have ever been a concern, although he showed improvement in his last few fights.
